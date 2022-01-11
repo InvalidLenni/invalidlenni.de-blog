@@ -18,7 +18,7 @@ The [Lenni's Development Place](https://bit.ly/lennidiscord_devplace) and the [L
 Yes! You can, but I do not force you to it. But I am then very happy no matter whether with money or without, sometimes I cry because of something (But that remains between us!) Because I do not always see people who support other people, I find nice & sympathetic.
 - **With money** (For peoples they are would like to maybe pay some upgrades (performence etc) and for better experience)
   - [Hosting (I actually host all (all, except one) projects of mine there and the more donated the more quality & performance I then buy as an upgrade](https://bit.ly/lennigeneral_affiliate)
-  - [Donate money for domain hosting (currently at Livingbots probably soon but elsewhere maybe not)[https://living-bots.net/donation?key=$2y$10$TaPketuiZ5RlHfKCv9F4ieTIcEo81fzG7CCo4jQp/LRocd3dW00we)
+  - [Donate money for domain hosting (currently at Livingbots probably soon but elsewhere maybe not](https://living-bots.net/donation?key=$2y$10$TaPketuiZ5RlHfKCv9F4ieTIcEo81fzG7CCo4jQp/LRocd3dW00we)
   - **Other things don't exists because I need current the money for hosting etc**
 
 
